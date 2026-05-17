@@ -83,4 +83,4 @@ We may update this Privacy Policy from time to time. If we make material changes
 If you have questions or requests about this Privacy Policy, contact Star Comms at:
 
 Star Comms  
-Email: legal@starcomms.example
+Email: starcommssupport@gmail.com
