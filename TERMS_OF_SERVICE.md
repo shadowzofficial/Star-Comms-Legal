@@ -100,4 +100,4 @@ Before filing a claim, you agree to contact us and attempt to resolve the disput
 If you have questions about these Terms, contact Star Comms at:
 
 Star Comms  
-Email: legal@starcomms.example
+Email: starcommssupport@gmail.com
